@@ -10,7 +10,7 @@ All will leave their words behind.
 
 ## 🏆 Hall of Fame
 
-🥇 First: _To Be Revealed_
+🥇 First: 
 🥈 Second: _So Close_
 🥉 Third: _Still Iconic_
 
@@ -22,7 +22,7 @@ To enter the arena, complete the lines below and add your entry.
 
 ---
 
-Name: ____________
+Name:athira k jayan
 
 My hidden talent: _______________________________
 
