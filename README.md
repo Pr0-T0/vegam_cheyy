@@ -22,14 +22,14 @@ To enter the arena, complete the lines below and add your entry.
 
 ---
 
-Name: ____________
+Name: ____paviya________
 
-My hidden talent: _______________________________
+My hidden talent: _______plays table tennis________________________
 
-The title of my autobiography would be: _______________________________
+The title of my autobiography would be: _____________idk__________________
 
-If I ruled the world for one day, I would: _______________________________
+If I ruled the world for one day, I would: ___________be happy____________________
 
-My dramatic final line: "_________________________________"
+My dramatic final line: "__________im scared_______________________"
 
 ---
