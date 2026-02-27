@@ -22,11 +22,11 @@ To enter the arena, complete the lines below and add your entry.
 
 ---
 
-Name: ____________
+Name: _________ASWATHY___
 
-My hidden talent: _______________________________
+My hidden talent: _______SING________________________
 
-The title of my autobiography would be: _______________________________
+The title of my autobiography would be: _________HAPPINESS______________________
 
 If I ruled the world for one day, I would: _______________________________
 
