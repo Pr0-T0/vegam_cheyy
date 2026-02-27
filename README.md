@@ -22,7 +22,7 @@ To enter the arena, complete the lines below and add your entry.
 
 ---
 
-Name: ____________
+Name: _____Esha_______
 
 My hidden talent: _______________________________
 
