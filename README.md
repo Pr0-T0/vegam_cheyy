@@ -22,11 +22,11 @@ To enter the arena, complete the lines below and add your entry.
 
 ---
 
-Name: ____________
+Name: ___krishna_________
 
-My hidden talent: _______________________________
+My hidden talent: ____________sing___________________
 
-The title of my autobiography would be: _______________________________
+The title of my autobiography would be: __________live lyf from one high to anoter_____________________
 
 If I ruled the world for one day, I would: _______________________________
 
